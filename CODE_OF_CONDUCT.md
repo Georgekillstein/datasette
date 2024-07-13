@@ -1,5 +1,5 @@
 # Contributor Covenant Code of Conduct
-
+https://freeaiall.com/ai-news/gpt-5-will-have-a-ph-d-there-is-a-level-of-intelligence-it-is-also-fast/
 ## Our Pledge
 
 We as members, contributors, and leaders pledge to make participation in our
